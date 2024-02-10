@@ -1,4 +1,8 @@
 ### Hi there 👋
+### You might already know but i'm YrzTrly 🥰
+### New to the coding world, but i'm getting a hang of it...I think 😶
+### Open to learning, inquisitive and fun to talk with 🤗
+### Can't wait to see what I'll gain out of this 🙃
 
 <!--
 **YrzTrly/YrzTrly** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
